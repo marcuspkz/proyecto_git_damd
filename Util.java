@@ -1,1 +1,2 @@
 Fichero de utilidades
+actualizaçao de softwareeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
